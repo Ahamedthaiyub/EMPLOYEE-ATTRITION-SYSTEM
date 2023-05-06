@@ -691,4 +691,4 @@ About
 
 
 
-## to know more about my project just conatact me :ahamedthaiyub27@gmail.com
+## to know more about my project just contact me :ahamedthaiyub27@gmail.com
